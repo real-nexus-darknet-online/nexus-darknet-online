@@ -39,4 +39,6 @@ For official access, visit the Nexus Darknet Online platform here: http://3mqcan
 
 
 
-Update:  13 August url is back up and running
+
+
+Update:  08/19/2025 link is back online and live
